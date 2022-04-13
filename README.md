@@ -1,5 +1,5 @@
 - 👋🏼 Hi! My name is Anna ☺
-- - 😄 Pronouns: She/her/hers
+- 😄 Pronouns: She/her/hers
 - ♐ I'm 31 years old
 - 🏳 I live in Austin, Texas
 - 🔭 I’m currently working as a Product Manager at Apple
