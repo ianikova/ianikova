@@ -1,4 +1,5 @@
-- 👋🏼 Hi! My name is Anna 
+Hi there! 👋 I am Anna.
+
 - 😄 Pronouns: She/her/hers
 - ♐ I'm 31 years old
 - 🏳 I live in Austin, Texas
