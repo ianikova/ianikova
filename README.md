@@ -3,7 +3,7 @@
 A Product/Project Manager transferring into a Software Engineer, I study human and programming languages, love solving problems and effectively communicate with both - people and computers. I'm a lifelong learner for whom coding is life!
 
 - 😄 Pronouns: She/her/hers
-- ♐ I'm 33 years old
+- ♐ I'm 34 years old
 - 🏳 I live in Austin, Texas
 - 🔭 I work as a Product Manager at Apple
 - 💬 I speak English, Russian, and German
